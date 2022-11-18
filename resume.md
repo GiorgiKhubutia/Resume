@@ -1,5 +1,5 @@
 # Giorgi Khubutia
-##  JUNIOR SOFTWARE TESTER
+##  JUNIOR BUSINESS ANALYST
 
 *Georgia / Tbilisi / Tel: +995 568 31 42 24* <br/>
 [giokhubutia@gmail.com](mailto:giokhubutia@gmail.com)<br/> 
