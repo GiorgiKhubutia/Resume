@@ -39,5 +39,6 @@ Deep immersion in the IT industry to understand all development processes and fu
       
 
 > *The latest version of resume you can see on https://github.com/GiorgiKhubutia/Resume/blob/main/resume.md*
+
       
 
